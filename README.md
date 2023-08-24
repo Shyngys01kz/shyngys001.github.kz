@@ -1,0 +1,1 @@
+# shyngys001.github.kz
